@@ -26,7 +26,7 @@ Don't hesitate to reach out if you'd like to discuss potential collaborations, s
 
 - **Email**:Mujtabakazim78@gmail.com/ mirwazirkazimi@gmail.com
 - **LinkedIn**: www.linkedin.com/in/wazir-kazimi
-- **Twitter/X.com**: twitter.com/09Mmwk
+- **Twitter/X.com**:[ twitter.com/09Mmwk](https://twitter.com/09Mmwk)
 
 ## Let's Connect and Innovate!
 If you're passionate about technology and innovation, especially in the realms of AR, MR, AI, game development, or web development, let's connect! Together, we can explore new frontiers, create groundbreaking experiences, and make a positive impact in the world. 🚀
