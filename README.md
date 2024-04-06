@@ -25,7 +25,7 @@ If you're also interested in AR and MR technologies or any other areas mentioned
 Don't hesitate to reach out if you'd like to discuss potential collaborations, share ideas, or simply connect over shared interests. Also, if you have any exciting web development projects, feel free to suggest adding them to this GitHub repository.
 
 - **Email**:Mujtabakazim78@gmail.com/ mirwazirkazimi@gmail.com
-- **LinkedIn**: www.linkedin.com/in/wazir-kazimi
+- **LinkedIn**: [www.linkedin.com/in/wazir-kazimi](https://www.linkedin.com/in/wazir-kazimi-5080aa253/)
 - **Twitter/X.com**:[ twitter.com/09Mmwk](https://twitter.com/09Mmwk)
 
 ## Let's Connect and Innovate!
