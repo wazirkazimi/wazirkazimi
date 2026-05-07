@@ -18,7 +18,7 @@ If you’re building something meaningful — I’d love to contribute, learn, a
 I’m always open to meaningful conversations about product, design, and innovation.
 
 - **Email**:mirwazirkazimi@gmail.com
-- **Portfolio**: [www.wazir-kazimi.com] ([https://www.linkedin.com/in/wazir-kazimi](https://www.figma.com/proto/FoWG34zJHCgwcjSWY6lEds/Untitled?node-id=0-1&t=UVUXiTTe8HF8Eaq7-1))
+- **Portfolio**:([www.wazir-kazimi.com](https://www.figma.com/proto/FoWG34zJHCgwcjSWY6lEds/Untitled?node-id=0-1&t=UVUXiTTe8HF8Eaq7-1))
 - **LinkedIn**: [www.linkedin.com/in/wazir-kazimi](https://www.linkedin.com/in/wazir-kazimi)
 - **Twitter/X.com**:[ twitter.com/09Mmwk](https://twitter.com/09Mmwk)
 
